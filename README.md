@@ -10,3 +10,7 @@
 
 ![image](https://github.com/Vaibhav-sa30/my_trading_bot/assets/86743451/11e6330d-5f14-4aa1-ba47-e28ea87f30bd)
 
+![image](https://github.com/Vaibhav-sa30/my_trading_bot/assets/86743451/b73e1a4f-5fd3-40f7-805b-be8f7a47812e)
+
+
+![image](https://github.com/Vaibhav-sa30/my_trading_bot/assets/86743451/b7e5c202-f0bc-4416-8cbd-516e8b5d27dd)
