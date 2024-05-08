@@ -4,3 +4,9 @@
 
 ![image](https://github.com/Vaibhav-sa30/my_trading_bot/assets/86743451/afdf2764-4216-465f-807e-4a874aacac45)
 
+![image](https://github.com/Vaibhav-sa30/my_trading_bot/assets/86743451/8e8da25b-2920-4f6b-ab69-387867aa000e)
+
+![image](https://github.com/Vaibhav-sa30/my_trading_bot/assets/86743451/89694aa0-c357-446c-9d87-a483d32cfa7e)
+
+![image](https://github.com/Vaibhav-sa30/my_trading_bot/assets/86743451/11e6330d-5f14-4aa1-ba47-e28ea87f30bd)
+
